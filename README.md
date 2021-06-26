@@ -1,0 +1,1 @@
+Estou gostando muito da plataforma e do conteudo também, vamos pra cima.
